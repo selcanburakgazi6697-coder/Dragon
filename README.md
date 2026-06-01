@@ -34,7 +34,7 @@
 
 | Ссылка |
 | --- |
-| [Dragon Money официальный Telegram]([https://telegram.me/s/dRaGoN_pLAYcAs](https://telegram.me/s/dRaGoN_pLAYcAs)) |
+| [Dragon Money официальный Telegram]([https://telegram.me/s/dRaGoN_pLAYcAs]) |
 
 ---
 
